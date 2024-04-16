@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bedman478
-- 👀 I’m interested in bobos
+- 👀 I’m interested in bobs
 - 🌱 I’m currently learning touch bobs
 - 💞️ I’m looking to collaborate on something with bobs
 - 📫 How to reach me EL TIO CAMA HOMBRE
